@@ -1,2 +1,16 @@
 # Attention-Tricks
 Some tricks and notes I wrote down to check what would help when you have some sort of attention deficit
+![1](https://github.com/user-attachments/assets/a68ee516-1724-4d6c-8380-a5e7cb3a3f09)
+![2](https://github.com/user-attachments/assets/aadae0b4-8261-4e33-9aea-8464ece88314)
+![3](https://github.com/user-attachments/assets/6ee0b8ff-dadb-4b5d-8117-9fcf24aeb3b1)
+![4](https://github.com/user-attachments/assets/2eeb4782-4632-4ee0-b669-23794e4ac8d0)
+![5](https://github.com/user-attachments/assets/fc2e3510-199b-4995-8263-7f6529b45fe0)
+![6](https://github.com/user-attachments/assets/785c39cf-e7f3-49fd-adb4-29347f67ef34)
+![7](https://github.com/user-attachments/assets/18c501a2-6206-443b-b057-f7d3ffc2c808)
+![8](https://github.com/user-attachments/assets/2a0a4cac-7df9-4dd2-8727-cc58b7551ade)
+![9](https://github.com/user-attachments/assets/711af847-e0bd-4d15-a770-1940149c2ec4)
+![10](https://github.com/user-attachments/assets/4a72e84a-6ab6-4862-8379-617ffb7d4593)
+![11](https://github.com/user-attachments/assets/98aa45eb-48ab-4f46-b2ec-42153a6109a3)
+![12](https://github.com/user-attachments/assets/ec7fd3fe-54c6-4eae-a05a-39e31baecfe4)
+![13](https://github.com/user-attachments/assets/b82fb490-142a-4b97-b988-f5c9c2f8d98e)
+![14](https://github.com/user-attachments/assets/f3dbad57-cf86-4cc5-942d-996c67d88e30)
